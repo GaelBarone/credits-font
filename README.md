@@ -7,7 +7,7 @@ D'après [Universal Accreditation](https://tracertong.co.uk/ttfw3/product/uni_ac
 
 > Bien le bonjour !<br />
 > Je ne suis ni graphiste ni font designer, ceci est un travail amateur.<br />
-> Je suis ouvert aux remarques et suggestions mais ne perdez pas de l'esprit que j'ai peu ou pas de connaissance sur le sujet.
+> Je suis ouvert aux remarques et suggestions mais gardez à l'esprit que j'ai peu ou pas de connaissance sur le sujet.
 
 #### Ajout
 Ĝ (U+011C) ➟ d'après<br />
